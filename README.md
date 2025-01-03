@@ -1,4 +1,4 @@
-### Oi! Eu sou a Duda Tessari :)
+### Oi! Eu sou a Duda :)
 
 - 🦋 Sou estudante de Ciência da Computação.
 
